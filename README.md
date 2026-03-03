@@ -1,1 +1,1 @@
-[REAMDE][(https://onlineverifyportal.us/)](https://cryptovistaapp.com/)
+[REAMDE][(https://cryptovistaapp.com/?utm_source=ad&utm_campaign=vista&tid=tihon)]
